@@ -3,6 +3,9 @@
 BIB Exchange  
 https://app.questn.com/quest/813575379035021492
 
+TaskOn's 1st Anniversary  
+https://taskon.xyz/campaign/detail/9890?ref=bk5TDLzX
+
 Blackfort Wallet Airdrop Campaign  
 https://taskon.xyz/campaign/detail/9603  
 https://app.questn.com/quest/809370187716411583
@@ -30,9 +33,6 @@ https://app.questn.com/quest/815290417783460282
 
 UNA Airdrop Campaign  
 https://app.questn.com/quest/813828846979579940
-
-TaskOn's 1st Anniversary  
-https://taskon.xyz/campaign/detail/9890?ref=bk5TDLzX
 
 MaticStaking airdrop  
 https://t.me/MaticstakingAirdropBot?start=6421850094  
