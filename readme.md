@@ -38,18 +38,12 @@ MaticStaking airdrop
 https://t.me/MaticstakingAirdropBot?start=6421850094  
 https://twitter.com/macticstaking/status/1701161893174640968
 
-SeedlyFarm airdrop  
-https://www.seedly.farm/signup?inviteCode=9sul6br
-
 Faunus airdrop  
 https://t.me/FannusAirdropBot?start=6421850094  
 https://twitter.com/FAUNUS_FNS/status/1701538834113257872
 
 Crystal Clear Companions WL  
 https://docs.google.com/forms/d/e/1FAIpQLSeMxD8xro6LEpTIXG2SZCwM4X-Z-34I_nxbX782WwwfxlF8nQ/viewform
-
-GLASSPASS: Launch Voyage  
-https://galxe.com/ScriptNetwork/campaign/GCV4hUrzAa?referral_code=GRFr2JVzLeH-0T6rZtpG5uDr1btLG8GB1LomRMy3huZdeR0
 
 Easy 0.5 BNB Giveaway Campaign  
 https://galxe.com/CoinScouts/campaign/GCx5dUiLpM
