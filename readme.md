@@ -1,40 +1,62 @@
 ## Enjoy your boring day!
 
-AANC x Gall3ry  
-https://app.questn.com/quest/814304956412649837?invite_code=2MPNIX
+BIB Exchange  
+https://app.questn.com/quest/813575379035021492
 
-ALAYA airdrop in QuestN  
-https://app.questn.com/quest/814332922634547341
+Blackfort Wallet Airdrop Campaign  
+https://taskon.xyz/campaign/detail/9603  
+https://app.questn.com/quest/809370187716411583
 
-Integration celebration: Mantle, Incrypted, Coin98!  
-https://wn.nr/MnYxD6j
+Ave.ai& LBank Partnership Giveaway  
+https://app.questn.com/quest/806151442848321829
 
-Gafin & ClashMon Airdrop  
-https://t.me/GafinOfficialAirdropBot?start=6421850094  
-https://twitter.com/Gafin_io/status/1700867870811717876
+Rebranding Party of NexGami  
+https://app.questn.com/quest/814506548326678760
 
-Kanazawa POP  
-https://docs.google.com/forms/d/e/1FAIpQLSfowF9gHqAaqfvew7ReHIWtRFqGsI5w7tXXBy5lwl4kXrBqAQ/viewform
+Meet HanaNetwork  
+https://app.questn.com/quest/809309939374092378
 
-Catalyst Missions Launch Supporter  
-https://galxe.com/catalyst/campaign/GCtcjUPe6z?referral_code=GRFr2J3m7WH2VuNtptpG5uDrw0nGZbOLswf1l2agT1ilMqa
+ChainIDE: Celebration for ETH Riyadh 2023  
+https://app.questn.com/quest/816110192522944891
 
-DogeGoalAI Airdrop  
-https://t.me/DogeGoalAIAirdropBot?start=6421850094  
-https://twitter.com/DogeGoalAI/status/1700127188866191774
+KTX Finance 🤝 BitByte Crypto  
+https://app.questn.com/quest/815957701855326582?invite_code=9MGBZL
 
-Kivo  
-https://www.kivo.finance/
+Infiblue Chat Public Testing Giveaway  
+https://app.questn.com/quest/815891172229742881?invite_code=QZDH1P
 
-LI.FI/Jumper x NOYA  
-https://galxe.com/LIFI/campaign/GCnmjUPRvo  
-QUIZ: A, A, C, A, A, B, B ,C, A, B, A, A
+PoolGame Swap Givewaway  
+https://app.questn.com/quest/815290417783460282
 
-Magic Square's End-of-Summer Madness  
-https://app.questn.com/quest/812977406248788479?invite_code=3OEW6K
+UNA Airdrop Campaign  
+https://app.questn.com/quest/813828846979579940
 
-MEVDAO Launch Promo  
-https://app.questn.com/quest/813761892705177740
+TaskOn's 1st Anniversary  
+https://taskon.xyz/campaign/detail/9890?ref=bk5TDLzX
 
-ELONN.AI - Launch & Concept Paper Giveaway  
-https://app.questn.com/quest/812991009981349937
+MaticStaking airdrop  
+https://t.me/MaticstakingAirdropBot?start=6421850094  
+https://twitter.com/macticstaking/status/1701161893174640968
+
+SeedlyFarm airdrop  
+https://www.seedly.farm/signup?inviteCode=9sul6br
+
+Faunus airdrop  
+https://t.me/FannusAirdropBot?start=6421850094  
+https://twitter.com/FAUNUS_FNS/status/1701538834113257872
+
+Crystal Clear Companions WL  
+https://docs.google.com/forms/d/e/1FAIpQLSeMxD8xro6LEpTIXG2SZCwM4X-Z-34I_nxbX782WwwfxlF8nQ/viewform
+
+GLASSPASS: Launch Voyage  
+https://galxe.com/ScriptNetwork/campaign/GCV4hUrzAa?referral_code=GRFr2JVzLeH-0T6rZtpG5uDr1btLG8GB1LomRMy3huZdeR0
+
+Easy 0.5 BNB Giveaway Campaign  
+https://galxe.com/CoinScouts/campaign/GCx5dUiLpM
+
+ItSirECO Airdrop  
+https://t.me/ItSirECOAirdropBot?start=6421850094  
+https://twitter.com/itsir_novacore/status/1701905126053793910
+
+Coinopy - First Engage Airdrop  
+https://wn.nr/WrSzj9b
